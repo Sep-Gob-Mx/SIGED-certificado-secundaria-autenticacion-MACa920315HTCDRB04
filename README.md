@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MACa920315HTCDRB04
+MACa920315HTCDRB04
